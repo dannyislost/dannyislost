@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hi Hello , traveller ! welcome ! 
 
-<!--
-**dannyislost/dannyislost** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## call me - danny . ryan . ken .
 
-Here are some ideas to get you started:
+curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i love to yap about my ocs so PLEASE do talk about it ^^
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+## interest !
+
+FAITH The Unholy Trinity , FNaF , BatIM , Inside Job , NINAH , Dispatch .
+## favourite characters + original characters
+### fav characters
+John Ward , Homeowner , Robert Robertson , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Henry Emily , William Afton , and more !
+### fav ocs
+Firdaus V. , Eja Alexander , Ronald Harmony , and more !
