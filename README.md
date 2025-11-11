@@ -16,8 +16,4 @@ John Ward , Homeowner , Robert Robertson , Brett Hand , Ron Staedtler , Gamma Ja
 Firdaus V. , Eja Alexander , Ronald Harmony , and more !
 
 ## socials !
-Discord - dannyislost
-Roblox - Galaxy_Fox2580 
-Instagram - dannyizlost
-Tiktok - dannyizlost
-Twitter / - Danielislost
+Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / - Danielislost
