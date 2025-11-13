@@ -11,10 +11,10 @@ FAITH The Unholy Trinity , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little
 ### fav characters
 John Ward , Homeowner , Robert Robertson , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
 ### fav ocs
-Firdaus V. , Eja Alexander , Ronald Harmony , and more !
+Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , and more !
 
-### favourite Actors
+### favourite actors
 Ryan Gosling . Lee Jin-wook
 
 ## socials !
-Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / - Danielislost
+Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / X - Danielislost
