@@ -6,10 +6,10 @@ curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i l
 
 ## interest !
 
-FAITH The Unholy Trinity , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Sky : COTL , and more !
+FAITH The Unholy Trinity , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Avatar 1-3 , Sky : COTL , and more !
 ## favourite characters + original characters
 ### fav characters
-John Ward , Homeowner , Robert Robertson , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
+John Ward , Miles Quaritch , Robert Robertson , Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
 ### fav ocs
 Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
 
