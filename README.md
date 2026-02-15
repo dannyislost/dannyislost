@@ -9,7 +9,7 @@ curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i l
 FAITH The Unholy Trinity , Bully , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Avatar 1-3 , Sky : COTL , and more !
 ## favourite characters + original characters
 ### fav characters
-John Ward , Miles Quaritch , Robert Robertson , Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
+John Ward , Miles Quaritch , Robert Robertson , Gary Smith , Jimmy Hopkins , Derby Harrington , Tad Spencer , Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
 ### fav ocs
 Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
 
@@ -17,4 +17,4 @@ Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , Arjuna , Nakula 
 Ryan Gosling . Lee Jin-wook
 
 ## socials !
-Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / X - Danielislost
+Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / X - Danielislost . Youtube - Dannyizlost
