@@ -18,3 +18,5 @@ Ryan Gosling . Lee Jin-wook
 
 ## socials !
 Discord - dannyislost . Roblox - Galaxy_Fox2580  . Instagram - dannyizlost . Tiktok - dannyizlost . Twitter / X - Danielislost . Youtube - Dannyizlost
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317urfq3i2pksj7asyc4pumxlkzi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
