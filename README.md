@@ -9,9 +9,9 @@ curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i l
 FAITH The Unholy Trinity , Bully , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Avatar 1-3 , Sky : COTL , and more !
 ## favourite characters + original characters
 ### fav characters
-John Ward , Miles Quaritch , Robert Robertson , Gary Smith , Jimmy Hopkins , Derby Harrington , Tad Spencer , Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
+John Ward , Bif Taylor , Gary Smith , Derby Harrington , Johnny Vincent , Jimmy Hopkins , Pete Kowalski , Tad Spencer , Miles Quaritch , Robert Robertson ,  Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
 ### fav ocs
-Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
+Scott Ross , Firdaus V. , Eja Alexander , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
 
 ### favourite actors
 Ryan Gosling . Lee Jin-wook
